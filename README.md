@@ -1,1 +1,1 @@
-# My codewars [profile](https://www.codewars.com/users/untermensch123)
+My codewars [profile](https://www.codewars.com/users/untermensch123)
